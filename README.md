@@ -1,5 +1,5 @@
 ### Hi 👋, I'm Manisha Hansani
-<img src="C:\Users\hansa\OneDrive\Pictures\WhatsApp Image 2022-11-04 at 18.54.07.jpg"  width ="300" height="200">
+![desktop-wallpaper-innovation-is-forever-technology-home-centre-ict](https://github.com/Manisha0807/Manisha0807/assets/146650692/68ea5a34-c0bf-45e5-ac2a-e8265033bda5)
 
 <!--
 **Manisha0807/Manisha0807** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
